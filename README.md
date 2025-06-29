@@ -1,3 +1,1 @@
-<p align="center"> sam . jared - he him
-
-![memememememe](https://github.com/user-attachments/assets/a9e2f652-5445-4dfb-942f-5981bdb93cd7) 
+ ![1000015088](https://github.com/user-attachments/assets/ebf56adf-e092-424c-b2c3-4776ea3f4be8)
